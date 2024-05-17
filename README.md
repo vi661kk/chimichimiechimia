@@ -1,4 +1,4 @@
 # chimichimiechimia
-#Interest in technology and programming and memes
+~~Interest in technology and programming and memes~~
 
-![gif](https://tenor.com/ggDTpjOsg01.gif)
+![esqueleto](https://media1.tenor.com/m/shjchADOxPcAAAAC/skeleton-dance.gif)
